@@ -1,6 +1,6 @@
 ### Hello there! 👋
 
-This is Zilberto JUnior, and I'm popularly known around the internet as **zjunior06**.
+This is Zilberto Junior, and I'm popularly known around the internet as **zjunior06**.
 
 I'm also a team member at **[@PixelExperience](https://github.com/PixelExperience)** since 2019, and my current device is the Moto G5 Plus. :P
 
