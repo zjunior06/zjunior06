@@ -6,7 +6,7 @@ I'm also a team member at **[@PixelExperience](https://github.com/PixelExperienc
 
 If you find someone with the username **zjunior06** on any platform, feel free to say hi!
 
-If you have any questions, just shoot me a text on **[Telegram](https://t.me/zjunior96)**.
+If you have any questions, just shoot me a text on **[Telegram](https://t.me/zjunior06)**.
 
 **Have a nice day :)**
 
