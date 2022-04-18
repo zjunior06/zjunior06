@@ -2,7 +2,7 @@
 
 This is Zilberto Junior, and I'm popularly known around the internet as **zjunior06**.
 
-My current device is the Moto G5 Plus. :P
+My current devices is the Moto G5 Plus and Pocophone F1. :P
 
 If you find someone with the username **zjunior06** on any platform, feel free to say hi!
 
